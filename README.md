@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning .NET \ SQL. 
 - 💞️ I’m looking to collaborate on with interesting people who learn\know sql/.net and other languages. Nice in communication. 
 - 📫 How to reach me: https://www.linkedin.com/in/yevhenii-korkach-836026120/   
-- my mysic https://soundcloud.com/eugene-korkach
+- my music https://soundcloud.com/eugene-korkach
 
 
 
